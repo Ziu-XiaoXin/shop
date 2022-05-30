@@ -10,8 +10,6 @@
 
 ![cc91ea1611b638eada963a75b2fb028](https://user-images.githubusercontent.com/44867694/171049967-2fafcf05-fe1b-4035-a869-1f1e1ee1f1ca.png)
 
-![9e7ee405b0641714f1604accf9444da](https://user-images.githubusercontent.com/44867694/171049985-22e8cf57-1a7b-4c08-b0c8-3ca3ec4e0522.png)
-
 ![b8c3cd4c8aa4289c3a2ae3858484d4e](https://user-images.githubusercontent.com/44867694/171049992-7588e240-242f-4957-85c5-032f15b75967.png)
 
 ![7ee29b94f138ec68c9ced618cb13048](https://user-images.githubusercontent.com/44867694/171050019-6b0fadf7-02dc-47eb-a9b6-b189c4c3cbe8.png)
